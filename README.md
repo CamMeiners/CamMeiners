@@ -1,16 +1,17 @@
 ### Hi there 👋
 
-<!--
-**CamMeiners/CamMeiners** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+📊 Web developer who built his first computer when I was 15! Built my second computer at 17 and still use it today!
 
-Here are some ideas to get you started:
+🚗Rebuilding a 1972 Corvette and a 1964 Cadillac!
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+🎥 Ask me why Better Off Dead (1985) is one of my favorite movies in my DVD collection (yes, really!)
+
+🧪 Current life: Web Development graduate at BloomTech. Former life: Information Technology!
+
+📲 Contact me on LinkedIn or email
+
+
+
+
+
+ 
